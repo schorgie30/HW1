@@ -1,3 +1,0 @@
-Cameron Schorg
-
-Colorado Rockies
